@@ -1,6 +1,6 @@
 # Резюме. Шафигуллина Диляра Рамилевна 
 
-![Image](img/Image)
+![Photo](img/multfilm_lyagushka_32117.jpg)
 
 ### ***О себе***
 
